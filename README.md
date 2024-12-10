@@ -1,3 +1,6 @@
+Like to video walkthrough of episode 2! 
+https://www.youtube.com/watch?v=1KnGwUFKJbU. 
+
 Welcome to our final project!
 Title: Cafe Conversations
 Submission Date: 12/9/2024
